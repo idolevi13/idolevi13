@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @idolevi13
-- 👀 I’m interested in learning new technologie & apply the tools I learned this year
+- 👀 I’m interested in learning new technologies & apply the tools I learned this year
 - 🌱 I’m currently learning for B.Sc in Digital Sciences for High-Tech at Tel- Aviv University, faculty of engineering
 - 📫 How to reach me- www.linkedin.com/in/ido-levi13 
 
